@@ -1,2 +1,0 @@
-# yellageorge
-Movie Prop. 
